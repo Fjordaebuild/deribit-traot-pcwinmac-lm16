@@ -1,4 +1,4 @@
-# 
+# Élite deribit trading bot plugins for Mac OS | Premium deribit trading bot plugins for PC Windows. Featuring análisis de momento and API de intercambio descentralizado — optimized for maximum performance.
 
 
 
